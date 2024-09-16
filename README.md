@@ -1,7 +1,7 @@
 
 joao enrique pires dos santos
 
-estudante do ensino medio:alura
+estudante do ensino medio : alura
 
 16 anos
 
